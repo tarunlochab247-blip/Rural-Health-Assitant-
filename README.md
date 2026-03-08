@@ -1,1 +1,0 @@
-# Rural-Health-Assitant-
